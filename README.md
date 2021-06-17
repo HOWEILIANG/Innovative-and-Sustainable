@@ -1,1 +1,1 @@
-# Innovative-and-Sustainable
+# Innovative & Sustainable
